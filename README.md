@@ -1,1 +1,0 @@
-# gold.github.io
